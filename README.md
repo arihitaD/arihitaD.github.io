@@ -1,1 +1,3 @@
 Personal Portfolio Website- Arihita Dirghangi
+
+Link to access(temporary and yet to be updated): https://u1.padletusercontent.com/uploads/padlet-uploads/2619890247/7a528a8b0f5a9a6755e4ae7d1d6b9b97/html_portfolio.html?expiry_token=5WaHZRdGG3LkUVQGy3SZ-zdRtq89aJeottSBaF_Hii8EGDVBG-vnLc5ZfL_2GiKosWMOCkHArMcc8LorETHcZ5bsmvuq5Vo234BLdYh0xjUKV_eItaxYzW_RlGmGJNPewvo2AhHUWKjkmeGH6nAPApqkRShMXfzMHPx3x12MyTttsCwj0ucnIFwvnLhKv3xvDhiQmvk2xwvnoDE-rTQsvYOp3zi4kCb7UoAKE2s5jh0=
